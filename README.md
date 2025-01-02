@@ -36,6 +36,8 @@
 
 ### Output:
 ![WhatsApp Image 2024-11-27 at 1 43 50 PM](https://github.com/user-attachments/assets/c2daabdb-568a-46f6-affe-e08f8bd3c66e)
+![cura cupboard](https://github.com/user-attachments/assets/431734e4-8f15-408e-b5cf-d0470095d223)
+
 
  
 
